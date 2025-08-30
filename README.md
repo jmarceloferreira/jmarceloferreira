@@ -1,6 +1,6 @@
 ### Perfil Pessoal
 
-Tenho 21 anos e frequento atualmente o 3º ano da Licenciatura em Engenharia de Sistemas Informáticos. Reconhecendo que a área de Tecnologias de Informação é muito ampla, sinto-me extremamente motivado para melhorar as minhas habilidades e crescer profissionalmente.
+Tenho 22 anos e sou licenciado em Engenharia de Sistemas Informáticos. Reconhecendo que a área de Tecnologias de Informação é muito ampla, sinto-me extremamente motivado para melhorar as minhas habilidades e crescer profissionalmente.
 
 ### Habilidades Técnicas
 
